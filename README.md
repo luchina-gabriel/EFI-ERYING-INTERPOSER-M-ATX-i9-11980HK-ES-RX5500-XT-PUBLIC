@@ -29,6 +29,8 @@
 |Gabinete Gamer Ninja FÚRIA|[Link to Buy/Comprar](https://www.terabyteshop.com.br/produto/23065/gabinete-gamer-ninja-furia-rgb-mid-tower-vidro-temperado-atx-sem-fonte-com-3-fans?p=880853)|
 |Fonte Fonte SuperFrame, 500W, 80 Plus Bronze|[Link to Buy/Comprar](https://www.terabyteshop.com.br/produto/17081/fonte-superframe-sf-b500fl-500w-80-plus-pfc-ativo-modular-sf-b500fl?p=880853)|
 |Erying Interposer M-ATX i7 11800H ES|[Link to Buy/Comprar](https://s.click.aliexpress.com/e/_DF3et57)|
+|Erying Interposer M-ATX i9 11980HK NO-ES, White|[Link to Buy/Comprar](https://s.click.aliexpress.com/e/_DBxtgFB)|
+|Erying Interposer M-ATX i9 11980HK NO-ES, Black|[Link to Buy/Comprar](https://s.click.aliexpress.com/e/_DlWgISV)|
 |DeepCool LE500|[Link to Buy/Comprar](https://www.terabyteshop.com.br/produto/22309/water-cooler-deepcool-le500-led-6-cores-240mm-intel-amd-r-le500-bklnmc-g-1?p=880853)|
 |AMD Radeon RX 5500 XT 8Gb|[Link to Buy/Comprar](https://www.pichau.com.br/placa-de-video-mancer-rx-5500-xt-streaky-8gb-gddr6-128-bit-mcr-rx5500xt-stk)|
 |Asgard DDR4 32GB(2x 16) 3200mhz|[Link to Buy/Comprar](https://mercadolivre.com/sec/1fxXgQC)|
